@@ -26,7 +26,7 @@ If you want to support our server we would be happy about a booster :)
 
 | Top | User | UserId | Donation | Please Support all 💙 |
 | :---:   | :-: | :-: |:-: | :-: |
-|1.| **CTK WARRIOR#7923** | **(450634297871695896)** | **(1 Yeah Repl.it Premium)** | [Youtube](https://youtube.com/user/DBD AND MORE)
+|1.| **CTK WARRIOR#7923** | **(450634297871695896)** | **(1 Yeah Repl.it Premium)** | [Youtube](https://youtube.com/user/DBDANDMORE)
 |2.| **օνร 𝕮𝖆𝖓𝖎𝖒 umbrella#1379** | **(563771824450830388)** | **(1× Discord Nitro)** | - |
 |3.| **Quxdrx_NightWolf#9939** | **(430060253619421204)** | **(1× Discord Nitro)** | [Youtube](https://youtube.com/channel/UCsztsvIU5SOfy8Iii1uIGUw)
 |4.| **-๖ۣۜ𝓑𝓒𝓒𝓢_𝓣𝓮𝓪𝓶#0001** | **(257285735650951168)** | **(1× Discord Nitro)** | - |
@@ -47,4 +47,4 @@ If you want to support our server we would be happy about a booster :)
 |8.| **Jendrik#2938** | **(361861328643686400)** | **(1 Monat)** | **(×3)** |
 
 - THIS LIST IS CREATED BY NIGHTCORELENA. INC
-- LAST UPDATE 02/03/2021
+- LAST UPDATE 02/03/2021 - 05:49
