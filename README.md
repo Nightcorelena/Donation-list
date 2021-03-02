@@ -1,4 +1,14 @@
-### Hi This is the official Donation and boost list from Lena's Eiscafe
+<img src=https://user-images.githubusercontent.com/59476216/109599061-76f00000-7b12-11eb-890c-f50d992649fb.jpg>
+
+```Hi This is the official Donation and boost list from Lena's Eiscafe
+Thx you very much for all donations & gifts 😊
+
+Would you like to support me too?
+Then you can do this [here](https://paypal.me/lena1235) :)!
+But please don't donate your last pocket money to me!!!!
+If you want to support our server we would be happy about a booster :)
+[Support Server]()
+```
 
 # Thx you to all Money donatiors 💖
 
@@ -16,7 +26,7 @@
 
 | Top | User | UserId | Donation | Please Support all 💙 |
 | :---:   | :-: | :-: |:-: | :-: |
-|1.| **CTK WARRIOR |  | **1 yeah repl.it premium** | |
+|1.| **CTK WARRIOR** | **450634297871695896** | **1 yeah repl.it premium** | |
 |2.| **օνร 𝕮𝖆𝖓𝖎𝖒 umbrella#1379** | **(563771824450830388)** | **(1× Discord Nitro)** | |
 |3.| **Quxdrx_NightWolf#9939** | **(430060253619421204)** | **(1× Discord Nitro)** | |
 |4.| **Fabio** | **(257285735650951168)** | **(1 × Discord Nitro)** | |
@@ -25,30 +35,15 @@
 
 # All Boosters
 
-1. Senpusan#1105 (7 Monate)
-2. Lena the fauli#0001 (1 Monate)
-3. ho7izon
-4. Balenciaga
-5. ＤＥＰＲＥＳＳＩＯＮ
-6.ＲＥＴＲＯＷＡＶＥ
-7.ＤＩＯＲ ２００１
-8. ＳＴＡＹ ＨＩＧＨ
-9. Ocarina of Time
-10. Lara ❤
-11. Cake92
-12. rainbowAnna
-13. Maxi#1213
-14. Jendrik0704#9490 
-
-==================================
-                 vielen vielen  dank an alle <3
-==================================
-Wenn ihr unseren Server Supporten wollt wir uns ūber ein Booster freuen :)
-Ihr möchtet mich auch Unterstützen?
-Dann könnt ihr das hier machen :)
-Aber bitte Spendet mir nicht euer letztes Taschengeld.
-https://paypal.me/lena1235
-https://www.tipeeestream.com/nightcorelena/donation
-==================================^
+| Top | User | UserId | Time | boosting |
+| :---:   | :-: | :-: | :-: | :-: |
+|1.| **Senpusan#1105** | **(650711523227861032)** | (7 Monate) | (14×) |
+|2.| **Lena the fauli#0001** | | (3 Monate) | (×6) |
+|3.| ho7izon | | (1 Monat) | (×13) |
+|4.| Lara ❤ | | Unknown | (×1) |
+|5.| Cake92 | | (1 Monat) | (×4) |
+|6.| rainbowAnna | | (1 Monat) | (×1) |
+|7.| Maxi#1213 | | | |
+|8.| **Jendrik0704#9490** | ||
 
 - THIS LIST IS CREATED BY NIGHTCORELENA. INC
