@@ -7,43 +7,44 @@ Would you like to support me too?
 Then you can do this [here](https://paypal.me/lena1235) :)!
 But please don't donate your last pocket money to me!!!!
 If you want to support our server we would be happy about a booster :)
-[Support Server]()
+[Support Server](https://discord.gg/xcqFM6D)
 ```
 
 # Thx you to all Money donatiors 💖
 
 | Top | User | UserId | Donation | Please Support all 💙 |
 | :---:   | :-: | :-: |:-: | :-: |
-|1.| **Senpusan#1105** | **(650711523227861032)** | **(57,00€)**| |
-|2.| **Hiski#1550** | **(257435701929312256)** | **(50,00€)** | |
-|3.| **Gentlemate#6969** | **(488417543866810379)** | **(25,00€)** | |
-|4.| **Grantelbart#7743** | **(UNKNOWN)** | **(2,01€)** | |
-|5.| **MauriceX#1520** | **(268768664411439115)** | **(0,45€)** ||
-|6.| **OmegaDevil17** | **(UNKNOWN)** | **(0,40€)** | |
-|7.| **sonys333** | **(UNKNOWN)** | **(0,25€)** | |
+|1.| **Senpusan#1105** | **(650711523227861032)** | **(57,00€)**| - |
+|2.| **Hiski#1550** | **(257435701929312256)** | **(50,00€)** | [Youtube](https://youtube.com/c/hiski) |
+|3.| **Gentlemate#6969** | **(488417543866810379)** | **(25,00€)** | [Twitter](https://twitter.com/Gentlemate3) |
+|4.| **Grantelbart#7743** | **(UNKNOWN)** | **(2,01€)** | - |
+|5.| **MauriceX#1520** | **(268768664411439115)** | **(0,45€)** | [Github](https://github.com/MauriceX24) |
+|6.| **JordanD#4509** | **(457653918047010821)** | **(0,40€)** | - |
+|7.| **sonys333#2508** | **(567769166350647355)** | **(0,25€)** | [Youtube](https://youtube.com/user/Sonys333) |
 
-# The end from the Money donation list the next list is Item gifts
+# All Item gifts
 
 | Top | User | UserId | Donation | Please Support all 💙 |
 | :---:   | :-: | :-: |:-: | :-: |
-|1.| **CTK WARRIOR** | **450634297871695896** | **1 yeah repl.it premium** | |
-|2.| **օνร 𝕮𝖆𝖓𝖎𝖒 umbrella#1379** | **(563771824450830388)** | **(1× Discord Nitro)** | |
-|3.| **Quxdrx_NightWolf#9939** | **(430060253619421204)** | **(1× Discord Nitro)** | |
-|4.| **Fabio** | **(257285735650951168)** | **(1 × Discord Nitro)** | |
-|5.| **Maxi#1213** | **(345577792773160965)** | **(2 × Discord Nitro Classic)** | |
-|6.| **✰ - 𝕊𝕙𝕦𝕗𝕗𝕝𝕚𝕖 - ✰#9515** | **(729316403991150662)** | **(1 × Discord Nitro Classic)** ||
+|1.| **CTK WARRIOR#7923** | **(450634297871695896)** | **(1 Yeah Repl.it Premium)** | [Youtube](https://youtube.com/user/DBD AND MORE)
+|2.| **օνร 𝕮𝖆𝖓𝖎𝖒 umbrella#1379** | **(563771824450830388)** | **(1× Discord Nitro)** | - |
+|3.| **Quxdrx_NightWolf#9939** | **(430060253619421204)** | **(1× Discord Nitro)** | [Youtube](https://youtube.com/channel/UCsztsvIU5SOfy8Iii1uIGUw)
+|4.| **-๖ۣۜ𝓑𝓒𝓒𝓢_𝓣𝓮𝓪𝓶#0001** | **(257285735650951168)** | **(1× Discord Nitro)** | - |
+|5.| **мαχι#8799** | **(345577792773160965)** | **(2× Discord Nitro Classic)** | [Youtube](https://youtube.com/channel/UC1CAAmd23sXilTg1JvJFDLg)
+|6.| **✰ - 𝕊𝕙𝕦𝕗𝕗𝕝𝕚𝕖 - ✰#9515** | **(729316403991150662)** | **(1× Discord Nitro Classic)** | [Twitch](https://twitch.tv/wtshuffle)
 
 # All Boosters
 
 | Top | User | UserId | Time | boosting |
 | :---:   | :-: | :-: | :-: | :-: |
-|1.| **Senpusan#1105** | **(650711523227861032)** | (7 Monate) | (14×) |
-|2.| **Lena the fauli#0001** | | (3 Monate) | (×6) |
-|3.| ho7izon | | (1 Monat) | (×13) |
-|4.| Lara ❤ | | Unknown | (×1) |
-|5.| Cake92 | | (1 Monat) | (×4) |
-|6.| rainbowAnna | | (1 Monat) | (×1) |
-|7.| Maxi#1213 | | | |
-|8.| **Jendrik0704#9490** | ||
+|1.| **Senpusan#1105** | **(650711523227861032)** | **(7 Monate)** | **(14×)** |
+|2.| **Lena the fauli#0001** | **(680778360871190600)** | **(3 Monate)** | **(×6)** |
+|3.| **Fugue#7777** | **(466143381928542219)** | **(1 Monat)** | **(×13)** |
+|4.| **SK|Flamiiiiiii#1987** | **(330257511821082624)** | **Unknown** | **(×1)** |
+|5.| **✰ - 𝕊𝕙𝕦𝕗𝕗𝕝𝕚𝕖 - ✰#9515** | **(729316403991150662)** | **(1 Monat)** | **(×5)** |
+|6.| **𝖠𝗇𝗇𝖺#2461** | **(440179590275530762)** | **(1 Monat)** | **(×1)** |
+|7.| **мαχι#8799** | **(345577792773160965)** | **(1 Monat)** | **(×1)** |
+|8.| **Jendrik#2938** | **(361861328643686400)** | **(1 Monat)** | **(×3)** |
 
 - THIS LIST IS CREATED BY NIGHTCORELENA. INC
+- LAST UPDATE 02/03/2021
