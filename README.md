@@ -17,7 +17,7 @@ If you want to support our server we would be happy about a booster :)
 |1.| **Senpusan#1105** | **(650711523227861032)** | **(57,00€)**| - |
 |2.| **Hiski#1550** | **(257435701929312256)** | **(50,00€)** | [Youtube](https://youtube.com/c/hiski) |
 |3.| **Gentlemate#6969** | **(488417543866810379)** | **(25,00€)** | [Twitter](https://twitter.com/Gentlemate3) |
-|4.| **Blubberschleim#0001** | **(285011841430716417)** | **(2.50€)** | [Twitter](https://twitch.tv/blubberschleim) |
+|4.| **Blubberschleim#0001** | **(285011841430716417)** | **(2.50€)** | [Twitch](https://twitch.tv/blubberschleim) |
 |5.| **Grantelbart#7743** | **(UNKNOWN)** | **(2,01€)** | - |
 |6.| **MauriceX#1520** | **(268768664411439115)** | **(0,45€)** | [Github](https://github.com/MauriceX24) |
 |7.| **JordanD#4509** | **(457653918047010821)** | **(0,40€)** | - |
@@ -48,4 +48,4 @@ If you want to support our server we would be happy about a booster :)
 |8.| **Jendrik#2938** | **(361861328643686400)** | **(1 Monat)** | **(×3)** |
 
 - THIS LIST IS CREATED BY NIGHTCORELENA. INC
-- LAST UPDATE 02/03/2021 - 05:51
+- LAST UPDATE 21/03/2021 - 18:37
