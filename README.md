@@ -38,7 +38,7 @@ If you want to support our server we would be happy about a booster :)
 
 | Top | User | UserId | Time | boosting |
 | :---:   | :-: | :-: | :-: | :-: |
-|1.| **Senpusan#1105** | **(650711523227861032)** | **(7 Monate)** | **(14×)** |
+|1.| **Senpusan#1105** | **(650711523227861032)** | **(7 Monate)** | **(×14)** |
 |2.| **Lena the fauli#0001** | **(680778360871190600)** | **(3 Monate)** | **(×6)** |
 |3.| **Fugue#7777** | **(466143381928542219)** | **(1 Monat)** | **(×13)** |
 |4.| **SKFlamiiiiiii#1987** | **(330257511821082624)** | **Unknown** | **(×1)** |
@@ -46,6 +46,7 @@ If you want to support our server we would be happy about a booster :)
 |6.| **𝖠𝗇𝗇𝖺#2461** | **(440179590275530762)** | **(1 Monat)** | **(×1)** |
 |7.| **мαχι#8799** | **(345577792773160965)** | **(1 Monat)** | **(×1)** |
 |8.| **Jendrik#2938** | **(361861328643686400)** | **(1 Monat)** | **(×3)** |
+|9.| **-๖ۣۜ𝓑𝓪𝓼𝓼𝓚𝓪𝓽𝔃𝓮#0001** | **(609382623646580748)** | **(new)** | **(×2)** | 
 
 - THIS LIST IS CREATED BY NIGHTCORELENA. INC
-- LAST UPDATE 21/03/2021 - 18:37
+- LAST UPDATE 15/04/2021 - 20:04
